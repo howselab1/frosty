@@ -6,6 +6,6 @@ iseya
 
 Ibikunle Amosun
 
-Succsessor: Dapo Abiodun
+Succsessor: Dapo Abiodun = current governor of ogun state
 
 Wife: Bamidele Abiodun
